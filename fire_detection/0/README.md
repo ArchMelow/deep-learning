@@ -1,1 +1,1 @@
-##100 non-fire images
+100 non-fire images
